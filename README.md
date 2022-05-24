@@ -4,7 +4,7 @@ I’m looking to collaborate on blockchain projects which:
 - Empower artistic expression
 - Reduce censorship
 
-The best way to reach me is to drop a message at https://medium.com/@G202
+The best way to reach me is to drop a message via [LinkedIn](https://www.linkedin.com/in/gvcollins/)
 
 @G202
 <!---

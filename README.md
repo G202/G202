@@ -1,4 +1,4 @@
-Hello world! 
+
 I’m looking to collaborate on blockchain projects which:
 - Promote privacy
 - Empower artistic expression

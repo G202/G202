@@ -1,6 +1,6 @@
 (AEST | GMT+10)
 ----------------
-Senior 'Traditional Digital Marketing' Heavyweight.
+**Senior 'Traditional Digital Marketing' Heavyweight**
 
 I’m looking to collaborate on Web3 projects which:
 - Promote privacy

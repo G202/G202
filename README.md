@@ -4,7 +4,7 @@
 
 I’m looking to collaborate on Web3 projects which:
 - Promote privacy
-- Empower artistic expression
+- Empower authentic self expression
 - Reduce censorship
 
 The best way to reach me is to drop a message via [LinkedIn](https://www.linkedin.com/in/gvcollins/)

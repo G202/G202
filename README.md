@@ -8,6 +8,7 @@ I’m looking to collaborate on Web3 projects which:
 - Reduce censorship
 
 The best way to reach me is to drop a message via [LinkedIn](https://www.linkedin.com/in/gvcollins/)
+... but feel free to also follow on [Twitter](https://twitter.com/G202_X)
 
 @G202
 <!---
